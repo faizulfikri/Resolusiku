@@ -1,0 +1,2 @@
+# Resolusiku
+Resolusi untuk karir
